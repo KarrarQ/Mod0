@@ -4,3 +4,4 @@ focus
 have fun
 trust in your instructors
 trust in yourself
+Shout out to ###kiko and ###Kim for helping. Im sure I'll be Bothering them some more
